@@ -1,12 +1,12 @@
 # First-Contribution
-Hello my name is Akshitha Chiyanoor , i am an intern :)
+Hello
+my name is Akshitha  , i am an HR :)
 Welcome to Netenrich!!
 
 
-MY FIRST DAY AS AN INTERN WAS SO MUCH FUN, I LEARNT A LOT OF THINGS!!
-
+MY FIRST DAY AS AN INTERN WAS SO MUCH __ I LEARNT A THING!!
+omkar is great
 
 i hope Your day was great too!!
-my fav kpop band is "BLACK PINK" !!!!
 
-MY NATIVE IS KERALA!!:)
+MY NATIVE IS KERALA KUTTI !!:)
