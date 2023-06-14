@@ -5,7 +5,7 @@ Welcome to Netenrich!!
 
 
 MY FIRST DAY AS AN INTERN WAS SO MUCH __ I LEARNT A THING!!
-omkar is great
+omkar is great....nopeeee   i m great
 
 i hope Your day was great too!!
 
